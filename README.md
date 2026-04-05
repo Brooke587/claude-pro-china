@@ -1,4 +1,4 @@
-<h1 align="center">Claude Pro China Guide 2026: How to Sign Up, Subscribe and Use Claude Pro in China with a 1001SMS Virtual Number</h1>
+<h1 align="center">Claude Pro China Guide 2026: How to Sign Up, Subscribe and Use Claude Pro in China</h1>
 
 <p align="center">Last updated: April 5, 2026</p>
 
